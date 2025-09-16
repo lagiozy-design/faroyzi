@@ -1,2 +1,0 @@
-# faroyzi
-nothin
